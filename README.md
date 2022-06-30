@@ -6,14 +6,14 @@
 
 # **BYI**
 
-I have mild humor, as in "KYS" "DIE" and phrases related to those: If you feel uncomfortable with my humor, I'd rather for you to not interact.
--
+*I have mild humor, as in "KYS" "DIE" and phrases related to those: If you feel uncomfortable with my humor, I'd rather for you to not interact.
+
 I am sometimes off tab, please be patient! 
--
+
 I use LOTS of caps
--
+
 I jokingly use emoticons, don't think I'm actually using them genuinely.
--
+
 I misspell a WHOLEEE lot please ignore it lol
 
 # **DNI**
